@@ -1,0 +1,12 @@
+Culture
+cOmpliance
+inNovation
+partNers
+excEllence
+co-Creation
+Trust
+alIgnment
+Values
+qualIty
+paTients
+humilitY
